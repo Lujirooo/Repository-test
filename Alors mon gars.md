@@ -1,1 +1,0 @@
-Et bien c'est pas trop mal.
